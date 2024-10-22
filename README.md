@@ -1,0 +1,1 @@
+# bir-say-n-n-karesi
